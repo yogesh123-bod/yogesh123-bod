@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **yash.230605@gmail.com**
 
-- 📄 Know about my experiences [https://online.flippingbook.com/view/146257960/](https://online.flippingbook.com/view/146257960/)
+- 📄 Know about my experiences [https://online.flippingbook.com/view/146257960/](https://online.flippingbook.com/view/873934791/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
